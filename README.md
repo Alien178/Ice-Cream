@@ -1,1 +1,1 @@
-This Recipe is about Mango Ice Cream and How to create it.
+This Recipe is about Vanilla Ice Cream and How to create it.
